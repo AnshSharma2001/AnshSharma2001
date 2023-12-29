@@ -9,7 +9,6 @@
 
 - 📫 How to reach me **contact@sharmaansh.com**
 
-- 📄 Know about my experiences [https://sharmaansh.com/download-resume/resume.pdf](https://sharmaansh.com/download-resume/resume.pdf)
 
 - ⚡ Fun fact **I can write with both hands.**
 
